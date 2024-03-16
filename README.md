@@ -1,1 +1,2 @@
-# proposal
+This is just for practice..
+But you can share it to your girlfriend/boyfriend and see his/her reaction...
